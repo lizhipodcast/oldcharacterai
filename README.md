@@ -4,4 +4,10 @@
 
 The Old Character AI website is https://old.character.ai/
 
+Old Character AI is better. 
 
+- How to Go Back to The Old Character AI?
+- How to get Character AI Old Version?
+- Why Are The Old Characters Disappearing on Character AI?
+
+https://oldcharacterai.net/
